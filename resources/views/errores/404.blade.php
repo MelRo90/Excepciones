@@ -1,0 +1,1 @@
+esto es una nueva pagina  de error 404.
